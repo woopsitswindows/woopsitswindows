@@ -1,2 +1,2 @@
 I'm Joel
-📫 kasanetheripper@proton.me
+📫 deadfilian@proton.me
